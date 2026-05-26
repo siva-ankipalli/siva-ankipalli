@@ -123,7 +123,7 @@ I'm **Siva Ankipalli** — a **Senior Backend Engineer** with **7+ years** archi
 
 I'm always open to **engineering deep-dives**, **collaboration on AI/backend projects**, and **mentorship conversations**.
 
-**💼 [LinkedIn](https://www.linkedin.com/in/siva-ankipalli/) | ✍️ [Medium](https://medium.com/@sivalakshmaiah409) | 🌐 [Portfolio](https://www.linkedin.com/in/siva-ankipalli/)**
+**💼 [LinkedIn](https://www.linkedin.com/in/siva-ankipalli/) | ✍️ [Medium](https://medium.com/@siva-ankipalli) | 🌐 [Portfolio](https://www.linkedin.com/in/siva-ankipalli/)**
 
 </div>
 
